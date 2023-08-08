@@ -1,0 +1,1 @@
+This is the first website or landing page that i'll make aplying the last topics or subjects that i read and practiced in the foundations of T.O.P 
